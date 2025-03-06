@@ -1,1 +1,1 @@
-M1 Cybersecurity and Cloud Computing | Cybersecurity Expert at APHP - Sorbonne University
+M1 Cybersecurity and Cloud Computing | Cybersecurity Expert intern at APHP - Sorbonne University
